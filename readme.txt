@@ -1,0 +1,1 @@
+https://community.powerbi.com/t5/Desktop/Remove-duplicate-texts-in-one-cell/m-p/256987#M114542
